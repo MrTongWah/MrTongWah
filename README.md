@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @MrTongWah
 - 👀 I’m interested in video games, editing, map creation, video content.
-- 🌱 I’m currently learning how nintendo games work
-- 💞️ 
+- 🌱 I’m currently learning how nintendo games work 
 - 📫 How to reach me: Hmu at twitter @MrTongWah
 
 <!---
